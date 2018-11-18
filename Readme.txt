@@ -1,7 +1,5 @@
 Muhammad Ahmad
 mahmad4
-project 2
-lab M/W 2:00-3:15
 I did not collaborate with anyone for this project and all the work is my own
 10/27/2016
 
